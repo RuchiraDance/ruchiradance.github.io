@@ -1,4 +1,4 @@
-# Ruchira Rao Kathak Dance July 2024
+# Ruchira Rao Kathak Dance
 
 [Performance Link](https://youtu.be/gaAwY7scFp4)
 
