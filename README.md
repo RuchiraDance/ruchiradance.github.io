@@ -1,4 +1,3 @@
-# Ruchira Rao Kathak Dance
 
 [Performance Link](https://youtu.be/gaAwY7scFp4)
 
